@@ -95,7 +95,7 @@ Evoluir para posições de **Analista de TI**, **Analista de Sistemas** ou **Des
 - GitHub: https://github.com/gabrielmariath
 - Portfólio: https://gabrielmariath.github.io/portfolio-ti/
 - LinkedIn: coloque-seu-link-aqui
-- E-mail: seuemail@email.com
+- E-mail: mariath.gmmail.com
 
 ---
 
